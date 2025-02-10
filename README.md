@@ -1,7 +1,7 @@
 # Shawarma-Legend-APK
 *SHAWARMA LEGEND:* The true shawarma experience!
 
-## [Free Download APK](https://apkview.com/en/shawarma-legend-apk)
+## [Free Download APK]
 
 *SHAWARMA LEGEND:* The true shawarma experience!
 
